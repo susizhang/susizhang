@@ -5,7 +5,7 @@
   
 
 
-- 🐬 I have 4 years of experience working as a ux-ui designer  
+- 🐬 I have 4 years experience working as a ux-ui designer
   
 
 - ❤️ I love coding and design  
