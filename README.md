@@ -2,7 +2,7 @@
 
   
 
-- 🌱 I’m currently enrolled in a Full Stack Web Dev coding bootcamp!  
+- 🌱 I’m currently learning programming in Full Stack Web Dev coding bootcamp!  
   
 
 - ❤️ I love coding and design  
