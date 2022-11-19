@@ -1,4 +1,4 @@
-## Hey 👋, I'm Susi! An UX-UI designer with over 4 years' experiences
+## Hey 👋, I'm Susi! A ux-ui designer with 4 years experience
 
   
 
