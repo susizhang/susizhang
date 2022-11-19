@@ -3,9 +3,11 @@
 
 - 🌱 I’m currently learning programming in Full Stack Web Dev coding bootcamp!  
   
-- ❤️ I love coding and design  
+
 
 - 🐬 I have 4 years of experience working as a ux-ui designer  
   
+
+- ❤️ I love coding and design  
 
 <br/>  
